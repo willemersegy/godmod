@@ -1,2 +1,2 @@
 # godmod
-for noting
+hoho, you stupid
